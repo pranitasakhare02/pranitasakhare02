@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me pranitasakhare02@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Life happends, tea helps!
+- ⚡ Fun fact: Life happens, tea helps!
 
 <!---
 pranitasakhare02/pranitasakhare02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
